@@ -1,1 +1,0 @@
-# seregamil.github.io
